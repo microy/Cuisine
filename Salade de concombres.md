@@ -5,7 +5,7 @@
 
 - 2 concombres
 - 300 g de yaourt grec
-- 1 gousse d'ail
+- 1 gousse d'ail (optionnel)
 - le jus d'un citron
 - 3 c. à soupe d'huile d'olive
 - 1 c. à soupe de vinaigre
