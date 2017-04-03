@@ -31,3 +31,20 @@ Proportions pour 10ml de liquide.
 
 - x% de Absolum (Revolute)
 - x% de Afro Diziak (T-Juice)
+
+## Umabsolum
+
+- 5g de Absolum (Revolute) ~ 1.5-3%
+- 10g de Umami (Revolute) ~ 3-6%
+
+## Knock Jack
+
+- 10% de Knock Knock (HVG - The Fuu)
+- 5% de Black Jack (Vampire Vape)
+
+
+## A tester
+
+- Coco / Caramel
+- Black Ice
+
